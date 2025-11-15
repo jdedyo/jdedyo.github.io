@@ -1,1 +1,0 @@
-# jdedyo.github.io
